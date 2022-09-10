@@ -1,0 +1,2 @@
+- 👋 Hi, this is James.
+- 💞️ I’m looking forward to collaborate on innovative fintech projects.
